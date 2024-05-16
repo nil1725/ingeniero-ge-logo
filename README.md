@@ -1,2 +1,2 @@
-# ingeniero-ge-logo
+# ingeniero-geologo
 Experiencia y conocimiento geológico
